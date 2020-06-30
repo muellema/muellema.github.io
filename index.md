@@ -7,3 +7,5 @@ Er nahm am futurologischen Kongress auf Einladung von Professor Tarantoga teil.
 Ijon Tichy ueber Zweifler
 
 > I always thought there would be ice in hell
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/2/26/St_Lem_resize.jpg" />
